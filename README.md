@@ -1,2 +1,2 @@
-# BrunoColpani.github.io
+# Finans.github.io
 Finans
